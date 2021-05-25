@@ -8,7 +8,7 @@ https://www.youtube.com/watch?v=oBt53YbR9Kk
 
 If interested in my comments please read the following post in my blob:
 
-<T.B.D.>
+https://www.johncanessa.com/2021/05/26/fibonacci-revisited/
 
 Keep in mind that the best way to learn is to read and experiemnt.
 
